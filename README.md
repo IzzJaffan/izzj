@@ -1,0 +1,2 @@
+# izzj
+latihan
